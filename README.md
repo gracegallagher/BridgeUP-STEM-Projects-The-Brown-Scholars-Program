@@ -1,1 +1,0 @@
-# BridgeUP-STEM-Projects-The-Brown-Scholars-Program
